@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ScribbleOnToast
-- 👀 I’m interested in doing to minimal amount of work to achieve the required goal.
+- 👀 I’m interested in doing the minimal amount of work to achieve the required goal.
 - 🌱 I’m currently learning anything and everything. Concentrating on some personal apps at the moment. 
 - 💞️ I’m open to collaborate on anything. Not actively looking, but if something interesting comes my way I'm open.
 - 📫 How to reach me: Why would you ever want to? /u/ScribbleOnToast on reddit 
